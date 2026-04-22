@@ -1,2 +1,2 @@
-仅用于学习交流，侵删。
+E779A
 sharipu@foxmail.com
